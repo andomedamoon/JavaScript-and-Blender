@@ -1,0 +1,1 @@
+The labs according to the script from that link: https://sites.google.com/pjwstk.edu.pl/grk/grk-english?authuser=0
